@@ -1,1 +1,1 @@
-Today is so beautiful sunday! It's exciting!
+I love my country very very much.
